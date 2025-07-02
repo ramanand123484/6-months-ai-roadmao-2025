@@ -1,0 +1,1 @@
+# 6-months-ai-roadmao-2025
